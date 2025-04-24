@@ -1,4 +1,4 @@
-https://nirmalsundesha.github.io/10-36AM-WebSite/
+[https://nirmalsundesha.github.io/10-36AM-WebSite/](https://nirmalkumar-1.github.io/10-36AM-WebSite/)
 
 ![screencapture-127-0-0-1-5500-home-html-2025-04-16-00_26_02](https://github.com/user-attachments/assets/af5fd9fe-1992-4997-949c-8d379ec1614a)
 
